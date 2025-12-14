@@ -4,6 +4,5 @@
 >
 > the only thing i see before following you is your cute pony! so, if my follow is unwanted, feel free to block me and / or delete my sign whenever♡
 >
-> and that would be all! have an amazing day, you, who are reading this! ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
+> and that would be all! have an amazing day, you, who are reading this! ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾ 
 
-![1000046052](https://github.com/user-attachments/assets/460f1e09-47ee-495e-b604-ec1067d5573b)
